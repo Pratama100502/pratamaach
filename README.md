@@ -1,2 +1,0 @@
-# pratamaach
-jangan dibully masszzeeh
